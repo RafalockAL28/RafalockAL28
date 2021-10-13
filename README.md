@@ -1,4 +1,4 @@
-## Olá, eu sou a Rafaek Alves Lopes 👨‍💻
+## Olá, eu sou a Rafael Alves Lopes 👨‍💻
 
 <br/>
 
